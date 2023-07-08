@@ -2,7 +2,9 @@ WILL ARTIFICIAL INTELLIGENCE (AI)
 REPLACE A HUMAN IN “IT”?
 
 Abboskhon Najmiddinov
+
 abboskhon.kh@gmail.com
+
 github.com/Abbos2299
 
 
